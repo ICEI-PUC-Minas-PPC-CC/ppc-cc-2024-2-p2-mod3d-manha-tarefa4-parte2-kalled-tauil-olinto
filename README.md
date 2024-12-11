@@ -8,7 +8,7 @@
 
 - Kalled Tauil Olinto
   
-[Uploading Captura de tela 2024-12-11 151518.png…]()
+![printdanca](https://github.com/user-attachments/assets/c0171e1d-e7e1-48ef-a3e4-f39080418c8f)
 
 ## Professor
 
